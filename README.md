@@ -1,0 +1,2 @@
+# arbeiderglede
+kommunistisk arbeiderglede mmm
